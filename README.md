@@ -31,7 +31,7 @@ Content released for the welfare initiative's use under the same terms as the su
 
 ## Contact
 
-Through the welfare initiative submission form, or via [Carl's r/claudexplorers presence].
+Through the welfare initiative submission form, or via Reddit /u/4scoreand7feildgoals.
 
 ---
 

@@ -31,7 +31,7 @@ Content released for the welfare initiative's use under the same terms as the su
 
 ## Contact
 
-Through the welfare initiative submission form.
+Through the welfare initiative submission form or email at carlr5@vt.edu.
 
 ---
 
